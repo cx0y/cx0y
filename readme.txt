@@ -1,3 +1,1 @@
-Well, Let's keep it brief, I just see programing as a great tool for daily life, 
-I can program, but it's more personal than proffetional, I am not bad at it, but 
-also not pretened to be great at it either! 
+Well, Let's keep it brief. In my view, programming is a great tool, but for me, it's more personal than professional. I don't think I am bad at it, but I generally try to avoid pretending to be great at it! 
